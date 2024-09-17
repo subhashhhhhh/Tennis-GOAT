@@ -1,5 +1,7 @@
 *The Ultimate GOAT: Novak Djokovic*
 
+![image](https://github.com/user-attachments/assets/170f8171-6f90-4ac1-b524-b7cba9d798b6)
+
 
 *Introduction*
 
